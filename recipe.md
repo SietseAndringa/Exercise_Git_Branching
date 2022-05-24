@@ -1,3 +1,5 @@
+    ### Instructions
+    
     1.Peel and slice the onions into half moons, slice the mushrooms thinly, peel and finely chop the garlic, pick and chop thyme, pick and chop the parsley
     2.Cook the mushrooms and onions in 1 tbsp oil in a large pan on high heat, 5 – 7 minutes until onions are soft and mushrooms are reduced and nicely browned, reduce heat to medium, add garlic and thyme and ½ tsp of salt, stir and cook for 1-2 minutes.
     3.Increase heat, Add white wine and allow to evaporate and the alcohol to cook off, around 2-3 minutes.
